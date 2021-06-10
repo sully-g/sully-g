@@ -5,6 +5,7 @@
 - 🌱 I’m currently learning Python
 - 🛠 Aspiring product manager - excited to help build the future!
 - 🎓 Economics graduate
+- 💸 Believer in crypto and Defi
 - 💬 English and French
 
 ## Contact
