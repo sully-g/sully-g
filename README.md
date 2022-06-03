@@ -8,5 +8,4 @@
 - 💸 Believer in crypto and Defi
 - 💬 English and French
 
-## Contact
-Twitter @ssulllly
+
